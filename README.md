@@ -2,8 +2,4 @@
 repositorio de prueba
 
 
-
-
-
-
-por queeeeeee
+Dios mio
